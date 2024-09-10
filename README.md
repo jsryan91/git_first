@@ -26,3 +26,7 @@
 [자기소개](https://shqkel.notion.site/19925dae069e4c58b34cc958c2fdc146?pvs=4)
 
 링크 추가 완료
+
+### 마지막 연습
+귀여운 춘식이 보고 힐링하세요~ ㅋㅋㅋㅋ
+![춘식이](https://i.pinimg.com/236x/41/6d/4f/416d4f5b450d7ac3c392960abb28e640.jpg)
